@@ -29,5 +29,5 @@ I'm a Master of Research student in Cybersecurity with a strong academic backgro
 
 ## 📫 Contact
 Feel free to connect with me:
-- 🔗 [LinkedIn](https://www.linkedin.com/in/YOURUSERNAME)
-- ✉️ Email: your.email@example.com
+- 🔗 [LinkedIn](https://www.linkedin.com/in/fardin-muttaki-75452b1ba/)
+- ✉️ Email: muttaki371@gmail.com
